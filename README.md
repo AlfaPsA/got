@@ -18,4 +18,4 @@
 - [微博](https://weibo.com/u/3009184157)
 - [bilibili](https://space.bilibili.com/2081472208/)
 - 小红书搜索：衣柜军团
-- 你可以在[联幻会的博客名片](https://www.xyzfm.link/nryhf)里选择你喜欢的平台
+- 你可以在[联幻会的播客名片](https://www.xyzfm.link/nryhf)里选择你喜欢的播客平台
