@@ -3,7 +3,8 @@
 - Game.of.Thrones.S01.2160p.UHD.BluRay.x265.10bit.HDR.TrueHD.7.1.Atmos-DON
 - Game.of.Thrones.S01.1080p.BluRay.REMUX.AVC.DTS-HD.MA.5.1-FGT
 
-**下载字幕点击右边的「Releases」。**
+**下载字幕点击右边的「Releases」。
+请不要将本压缩包或解压缩之后的字幕打包上传到任何字幕网站，谢谢！**
 
 文字内容基本未作修改（个别集的中文逗号也全部保留了），仅对一些相关媒体和网站的链接做了更新，并按照蓝光片源调整了时间轴。第一季的时间轴和压制署名做了相应的替换。字幕更新于2024年7月30日。
 
